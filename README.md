@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @malyse20
+- 👋 Hi, I’m @beautyfull20
 - 👀 I’m interested in photograpy
 - 🌱 I’m currently learning baking and coding
 - 💞️ I’m looking to collaborate on coding
